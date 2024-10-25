@@ -1,8 +1,8 @@
 # PortFolio
 
 
-![Untitled (1)](https://github.com/gkgkgk78/PortFolio/assets/78834028/cb117da9-62e3-471a-acb4-d01801c34957)
-![Untitled (2)](https://github.com/gkgkgk78/PortFolio/assets/78834028/930c9e75-441d-4139-9469-07ed6b272c85)
+![PORT1](https://github.com/user-attachments/assets/fdb74213-eb5f-495e-9bdb-a95e194ba593)
+![PORT2](https://github.com/user-attachments/assets/c06bb8d5-d1d8-4e1b-9716-d77c97b4d60b)
 ![Untitled (5)](https://github.com/gkgkgk78/PortFolio/assets/78834028/9d7290a9-a667-43bc-b224-82c8771fdf1a)
 ![tt](https://github.com/gkgkgk78/PortFolio/assets/78834028/3e007e31-a165-49e0-b423-50ebf2c6a982)
 ![temp1](https://github.com/gkgkgk78/PortFolio/assets/78834028/32e34d92-caeb-44aa-9ec4-6d22d6872038)
