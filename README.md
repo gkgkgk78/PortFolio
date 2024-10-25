@@ -17,7 +17,6 @@
 ![Untitled (11)](https://github.com/gkgkgk78/PortFolio/assets/78834028/d81dc12f-3a86-45b0-ac04-4f681de643dd)
 ![Untitled (12)](https://github.com/gkgkgk78/PortFolio/assets/78834028/11983c83-5c0d-40aa-8e6b-cb950fc68dac)
 ![Untitled (13)](https://github.com/gkgkgk78/PortFolio/assets/78834028/c789e8ee-856b-4f34-9de7-014e907b3210)
-![Untitled (14)](https://github.com/gkgkgk78/PortFolio/assets/78834028/ac16c922-b8ee-4c62-96e5-f619bb1560d5)
 
 
 
