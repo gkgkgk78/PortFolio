@@ -12,9 +12,6 @@
 ![temp3](https://github.com/gkgkgk78/PortFolio/assets/78834028/1ab646c0-ba78-4019-ba14-28091b0af173)
 ![temp4](https://github.com/gkgkgk78/PortFolio/assets/78834028/e65860a1-a44f-44cd-9291-3fc2c2cbb07c)
 ![Untitled (8)](https://github.com/gkgkgk78/PortFolio/assets/78834028/52e6c8b9-8359-4e3e-b997-cf2b2f590a8a)
-![Untitled (9)](https://github.com/gkgkgk78/PortFolio/assets/78834028/bef1cf20-c326-4471-b0e6-5313305c2255)
-![Untitled (10)](https://github.com/gkgkgk78/PortFolio/assets/78834028/9344f5de-0c08-45f3-98fc-1a9cf120a42c)
-![Untitled (11)](https://github.com/gkgkgk78/PortFolio/assets/78834028/d81dc12f-3a86-45b0-ac04-4f681de643dd)
 ![Untitled (12)](https://github.com/gkgkgk78/PortFolio/assets/78834028/11983c83-5c0d-40aa-8e6b-cb950fc68dac)
 ![Untitled (13)](https://github.com/gkgkgk78/PortFolio/assets/78834028/c789e8ee-856b-4f34-9de7-014e907b3210)
 
